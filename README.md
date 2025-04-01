@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-Soy un Comunicador Audiovisual con un enfoque creativo ycon un enfoque creativo y una mente analítica en constante evolución. Actualmente, curso mi segundo año de Ingeniería en Informática , combinando mi experiencia en medios con habilidades de desarrollo y tecnología. Me apasiona la intersección entre la creatividad y la programación, buscando soluciones innovadoras en cada proyecto.<br><br>, con💡 ¿ Buscas alguien que combine?📍Desde Chile, con 35 años de trayectoria en la vida y una mentalidad de aprendizaje continuo.<br>💡 ¿Buscas alguien que combine visión creativa con lógica computacional? ¡Hablemos!
+Soy un Comunicador Audiovisual con un enfoque creativo  y una mente analítica en constante evolución. Actualmente, curso mi segundo año de Ingeniería en Informática , combinando mi experiencia en medios con habilidades de desarrollo y tecnología. Me apasiona la intersección entre la creatividad y la programación, buscando soluciones innovadoras en cada proyecto.<br><br>, con💡 ¿ Buscas alguien que combine?📍Desde Chile, con 35 años de edad y 15 años de trayectoria en las comunicaciones,redes e informatica. continuo.<br>💡 ¿Buscas alguien que combine visión creativa con lógica computacional? ¡Hablemos!
 
 
 ## 🌐 Socials:
